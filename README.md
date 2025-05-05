@@ -1,4 +1,4 @@
-# 购买 TikTok 账号最佳网站
+# 最佳网站购买TikTok 账号
 这里推荐 8 个可以购买 TikTok 帐户的网站（PVA、Cheap 和 Bulk）。
 
 创建大量 TikTok 帐户可能非常耗时。
